@@ -1,4 +1,4 @@
-# JONATHAS CORDEIRO
+# Jonathas Cordeiro
 
 **Delivery Intelligence Specialist** · Agile Coach · AI Architecture Researcher
 
